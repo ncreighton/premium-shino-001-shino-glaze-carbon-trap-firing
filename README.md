@@ -1,0 +1,2 @@
+# premium-shino-001-shino-glaze-carbon-trap-firing
+You shouldn't need a week of setup before your system is usable to have a complete productivity system running today.  Mobile-optimized for Notion iOS and Android — works everywhere you work. Pre-built databases, views, and formula fields — ready to duplicate and use.  ## What's Included  - Shino Glaze Carbon Trap Firing Schedule — fully configured
